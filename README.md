@@ -8,3 +8,4 @@
 如果您转载本人的电脑破解包，请务必把作者信息加上
 
 教程视频：https://www.bilibili.com/video/av97915828/
+下载地址：https://ycly.lanzous.com/b0akluldg
